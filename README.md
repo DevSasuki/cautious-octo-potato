@@ -1,2 +1,2 @@
 ## cautious-octo-potato
-Random project - who knows, this could become the next big thing!
+Random project. I need ideas. DM me on discord kthx (Sasuki#3697)
